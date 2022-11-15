@@ -1,1 +1,1 @@
-hello my friend
+everything you need, nothing you don't
